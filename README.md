@@ -1,2 +1,1 @@
 # Fintech_Project_One
-Proposal - https://docs.google.com/document/d/1rQNBOSv5ojvHpcgYAo4_EUFyAF2sJ0MZWKy8tcPZG60/edit?usp=sharing
